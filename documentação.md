@@ -1,5 +1,5 @@
 # Professora Taís Santos Neves Carvalho
-**Daniel, Jeames, João Neto e Fernandes.**
+**Daniel Campos Dos Santos, Jeames Borges da Silva, João Neto Jesus Alves e Amaro Fernandes Nascimento dos Santos.**
 
 Equipe: Fernandes
 
