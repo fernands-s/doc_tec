@@ -1,4 +1,5 @@
-# Professora Taís Santos Neves Carvalho Daniel, Jeames, João Neto e Fernandes
+# Professora Taís Santos Neves Carvalho
+**Daniel, Jeames, João Neto e Fernandes.**
 
 Equipe: Fernandes
 
